@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ConnorR02
+- 👋 Hi, I’m @Odyss3y
 - 👀 I’m interested in technology
 - 🌱 I’m currently learning ... Cyber Security - Qualifying to be a Security Engineer. 
 - 💞️ I’m looking to collaborate on ... Cool projects and such. 
